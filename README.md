@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abhinaygupta389@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zxb2fmo0uNIyeLDb_dPNfmyN_CvwjCtu/view?usp=sharing](https://drive.google.com/file/d/1zxb2fmo0uNIyeLDb_dPNfmyN_CvwjCtu/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1zxb2fmo0uNIyeLDb_dPNfmyN_CvwjCtu/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
